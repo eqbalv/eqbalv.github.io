@@ -1,1 +1,0 @@
-# eqvol.github.io
